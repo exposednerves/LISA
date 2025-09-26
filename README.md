@@ -1,11 +1,11 @@
-# SAINT/SEVEN
+‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ # SAINT/SEVEN
 
-Often offtab but i check in frequently (W2I nonetheless)
+‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ 18 it/its butch gaybian
 
-Do Not interact w me if you're under 16 or one of those really chronically online people who Can't form their own opinions
+‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎️️‎**BYF...** I am mentally ill which affects the way I think. I lack empathy as well, please take that into consideration
 
-**I LIKE..** metal gear, trigun, unstable universe, golden kamuy and ultrakill mostly... theres more but Who gaf
+‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ Do Not interact w me if you're under 16 or if you're uncomfortable with dark media - we won't get along.
 
-Thts it Thakn u
+‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ **I LIKE..** metal gear, trigun, unstable universe, golden kamuy and ultrakill mostly... theres more but Who gaf
 
-![image](https://files.catbox.moe/3340il.gif)
+‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎️️‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎‎ ‎ ‎ ‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ![image](https://files.catbox.moe/3340il.gif)
